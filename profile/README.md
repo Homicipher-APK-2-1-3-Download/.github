@@ -1,4 +1,4 @@
-# Homicipher APK v3.1.3 (Android Game) Download New 2025 for Anfroid
+# Homicipher APK v3.1.3 (Android Game) Download New 2025 for Android
 
 Are you a fan of immersive puzzle games that challenge your thinking and keep you on the edge of your seat? **Homicipher** is a thrilling addition to the world of mystery and escape room-style games. With a mix of cryptic clues, mind-boggling puzzles, and an engaging storyline, Homicipher has quickly gained popularity among gaming enthusiasts. If you’re looking to download Homicipher APK for Android, this article will provide a detailed guide along with everything you need to know about the game.  
 
